@@ -1,4 +1,4 @@
-# 
+# Hidden Vegas Pro for PC scripts is the best Vegas Pro for PC scripts with audio-restoration and batch-processing. Safe, reliable, and optimized for maximum performance.
 
 
 
